@@ -57,13 +57,11 @@ We handed in our essays this week and I do feel really confident in my essay alt
 
 ## Week 9
 
-STRESS about the essay
+this week we continued our tinkering with audio assignment and for a few lectures I wasnt in due to illness so will need to revisit the slides in my own time
 
 ## Week 10
 
-and so on...
 
-Weekly journal goes here. Reflect.
 
 ## Week 11
 
